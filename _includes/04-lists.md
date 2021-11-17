@@ -1,0 +1,12 @@
+list of favorite things.
+* 😊
+
+* 😁
+
+
+    
+                  
+    
+
+          
+            
